@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yezzirr
 - 👀 I’m interested in everything if the time's right :)
-- 🌱 I’m currently learning self-controland confidence
+- 🌱 I’m currently learning self-control and confidence
 - 💞️ I’m looking to collaborate on something big
 - 📫 How to reach me infinity19756@gmail.com
 
